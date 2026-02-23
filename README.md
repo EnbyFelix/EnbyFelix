@@ -1,7 +1,6 @@
-I’m @EnbyMo, I use xe/he/they pronouns. I am an autistic panaesthetic genderfaun aroace.
-I’m interested in Stardew Valley, birds, and languages (both real and conlangs).
-I’m currently learning Hungarian and conlanging.
-How to reach me: @dee_xe_xem on sdv discord (please no dms without asking first).
+I’m @EnbyFelix, I use he/xe/it pronouns. I am an AuDHD demiboy aroace.
+I’m interested in farming sims, birds, and languages (both real and conlangs).
+I’m currently learning Danish, playing Fields of Mistria and conlanging.
 https://www.nexusmods.com/users/58746061
 
 <!---
